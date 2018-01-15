@@ -1,0 +1,2 @@
+# DozzyCoin
+DZC ICO
